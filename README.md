@@ -1,1 +1,1 @@
-******* welcom to my github page ********
+******* welcome to my github page ********
